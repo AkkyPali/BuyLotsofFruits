@@ -1,5 +1,3 @@
-﻿Name: Akanksha Paliwal
-SFSU ID: 921427283
 
 
 
